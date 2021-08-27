@@ -1,0 +1,2 @@
+Site que possibilita acessar supermercados diversos no conforto de casa.
+Amplo, objetivo e fácil, essas são 3 características do Compre Fácil! Localizamos os supermercados mais perto de sua residência e permitimos que você faça suas compras virtualmente, sem se preocupar com filas, por sua saúde em risco ou ter que viajar mais alguns quilômetros para usufruir de um supermercado com preço mais acessível que de outro.
